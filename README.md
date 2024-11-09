@@ -1,0 +1,30 @@
+- Behind the Gates: Inside Southeast Asia’s Dark Scam Empire - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/4gsbNRTx5c9SJl8CtFaEhI
+- Stay One Step Ahead of Summer Door-to-Door Scams! - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/45bzDwBUuP8H54UpUxMPy5
+- Lottery &amp; Sweepstakes Scams: How to recognize the red flags and outsmart the scams - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/2UneqRVGxI8kSZC3Y8AeiQ
+- Crypto Scams Exposed: Protect Your Wallet from the Biggest Cons - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/0831b2rQttw908cFhTJNZJ
+- Airport Scams Exposed: Protect Yourself Before Your Next Trip Home - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5LwQOW2SU0umP0sEfPq3PD
+- Protect Yourself from SIM Swapping Scams - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/3Q2wgjtrb10uyZi5yCzG8M
+- Scientific Fraud: The Hidden Scams in Research That Impact Us All - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/4zYQ6QO8CwszQXRJJIrfg3
+- How QR Codes are Used for Scamming - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/6UjtHtpieKCkMqdN06C9mJ
+- Navigating the Threats of Modern Scams - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/6LoX1yG89pVB73Or2oTTcj
+- Beware the Electronic Filing Scam Targeting Attorneys Nationwide - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/3gzVZhJ4IlVGJe1H5CwtrS
+- Scam Wise Podcast: Beware of Holiday Puppy Scams! - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/4pH8Xo7Os0oUv22JlcNGlc
+- Navigating Medicare Scams During Enrollment Season: Stay Safe and Scam-Wise! - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/0SmJIeQV81CwCO7TmasrfA
+- Facebook Marketplace Rental Scams Uncovered - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/7azx2Wbj1XuJa6enhNPZkm
+- The Anambra Chairman and the $3.3 Million Romance Scam - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5hTNstuuW4p8ix7REB763t
+- Luxury or Lure? Navigating Bangkok’s Airbnb Traps - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5BCb6FqFZ1Q0JJY8ifOeIs
+- Deal or Steal? Staying Scam-Wise for Black Friday - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/0X5mKqxXm4EPmW6QeTkSbH
+- Protect Yourself from Fake Job Offers - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/59zNeCqILbQxnMYXkhRdFZ
+- Fraudulent SMS Creeps into Legitimate Message Threads - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/6rUhkP7ulBzpZpafU2kEc5
+- Scam Wise Podcast: How to Spot a Scam Call Without Caller ID Apps - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/0TxunvwuB2cxCMPpxOPc8T
+- Scammers Stealing Security Codes: A New Home Invasion Threat Long Form - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5d9dO96txGCF344udTt3ZG
+- Phishing Alert: The New Email Scam Targeting Rochester Residents - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/7AnWdmmsOh0d7Uo364hj5V
+- Scam Wise Podcast: Holiday Scam Alert—How to Spot Fake Prizes &amp; Avoid Costly Mistakes - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/2ZhqMIjqOo9xyFV6QdjOIz
+- Beware the Arrest Warrant Phone Scam: Protecting Champaign County - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5rdsP3hH8LM7PHSOoKVZmw
+- Scam Wise Podcast: Oasis Ticket Scams – How to Avoid Losing Big - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/1NtxEbAjf7xPBZSxaE04iF
+- Beware the Jury Duty Scam: Chatham County’s Warning - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/6pgSb7XHou8qFjSlrSg1KZ
+- The Ghost Dependent Scam - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/1d5mgtumOsymlBawHuObGn
+- Skimmed Dry: Protecting Your EBT Card from Scammers - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/6c2HFMzQiL7YNZeTRhPzvR
+- Racist Text Scams Targeting Black Residents: A Nationwide Issue - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/12YvIF3KctmqAV2qF6mrj7
+- The Salmon Scam - When Your Sushi Isn’t What It Seems - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/5Y5QaPxYyS1JNpSLtzvNKA
+- Exposing the Tourist Trap of the Cups and Balls Con - Scam Wise | Podcast on Spotify	https://open.spotify.com/episode/2npHHcR1pIFZTSOWYePMqA
